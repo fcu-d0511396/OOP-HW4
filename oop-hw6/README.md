@@ -1,0 +1,1 @@
+&nbsp;<a href="https://goo.gl/pJowmK" title="" target="_blank">Defining Class</a>
